@@ -14,3 +14,5 @@
 1. amasse as bananas e misture com os ovos
 2. junte a mistura com o resto dos ingredientes 
 3. coloque a massa em uma forma untada e asse até dourar
+
+Receita pronta!
